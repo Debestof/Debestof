@@ -4,6 +4,7 @@
 <img src ="https://cdn.discordapp.com/attachments/888689841590636547/888692990011383826/888690837939159051.gif" height="15" width="15"> Hey, I'm Debestof. 
 
 I am a:
+
 -Gamer 🎮, 
 
 -Crypto Trader ₿, 
